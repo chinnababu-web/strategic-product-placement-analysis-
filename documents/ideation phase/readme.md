@@ -1,0 +1,1 @@
+idetion phase establlishing ideas
